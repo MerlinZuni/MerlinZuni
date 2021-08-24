@@ -1,0 +1,7 @@
+- 😀  Howdy, I’m @MerlinZuni
+- 🥺  Currently, I'm a coding Noob...
+- 💪  I am a skilled UX & brand designer https://www.linkedin.com/in/merlinzuni/
+- 👀  I <3 art, design, environment, technology & reading https://www.goodreads.com/user/show/25607-merlin-zuni
+- 🌱  I’m in a coding class at Zhdk: https://www.zhdk.ch/en/continuingeducation/design-450/cas-coding-for-the-arts
+- 💞️  I’m looking to collaborate on anything simple & creative
+- 📫  You can reach me by visiting my website: www.zuniversal.com
